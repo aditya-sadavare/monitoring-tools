@@ -9,9 +9,9 @@ Exercise 3:
 
 Exercise 4:
 ![image](https://github.com/user-attachments/assets/1200f022-4cf6-4808-897c-0422af703f2c)
+![image](https://github.com/user-attachments/assets/437962c8-b484-4c02-9bff-fcd104bd9d84)
 
 Exercise 5:
-![image](https://github.com/user-attachments/assets/437962c8-b484-4c02-9bff-fcd104bd9d84)
 ![image](https://github.com/user-attachments/assets/dc011e77-fdb0-403b-b461-70acb3497d40)
 
 Exercise 6:
